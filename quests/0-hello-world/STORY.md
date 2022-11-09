@@ -20,7 +20,7 @@ hands, will doom society for eternity. We are doing this for the good of
 humankind."
 
 "Oh, is that all," said Roscoe. "Let's get on with it then!" He stood up with a
-flourish and lept from the tent.
+flourish and leapt from the tent.
 
 Bee sighed. Yes, many challenges stood in their way, but once the Golden Soroban
 was in their hands, they would be able to use it for so many wonderful things.
